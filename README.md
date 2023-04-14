@@ -1,3 +1,5 @@
+![alt text](https://media.discordapp.net/attachments/1051385609769472020/1096494368938000445/cywf_Imagine_SabioAmigo_as_a_wise_friendly_and_approachable_fig_f18e3efb-576a-4fd1-99fa-7971d97b56b2.png?width=1138&height=1138)
+
 # SabioAmigo
 
 <!--
